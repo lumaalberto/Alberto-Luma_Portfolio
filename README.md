@@ -49,6 +49,25 @@ What can be done to solve the obesity problem?
   I will create focus on predictive analysis to pinpoint a diverse set of physical activities and nutritional programs in neighborhoods and educational institutions may be the   best way to reduce the risk of obesity among poor youngsters. I will also some such that need reliable Association Between Poverty and Obesity in the United States funding     from governments and charities to boost and leverage valuable programs in neighborhood centers and schools serving disadvantaged Americans.
   
   
+# [Project IX: Commercial-Construction-Projects-in-Central-Florida-](https://github.com/lumaalberto/Commercial-Construction-Projects-in-Central-Florida-/edit/master/README.md)
+Coming Soon
 
+This project is a simple project that a very good friend asked me to assist him with. He is a developer and he needs assistance to understand the future of commercial construction in Central Florida
+
+
+# [Project X: Tourism-in-Central-Florida-in-2020](https://github.com/lumaalberto/Tourism-in-Central-Florida-in-2020/blob/master/README.md)
+Coming Soon
+
+This is a project that I am currently working on just for curiosity on how the Covid-19 affects tourism in Central Florida.
+
+
+# [Contact-me](https://github.com/lumaalberto/Contact-me/edit/master/README.md)
+1168 Pavia Drive
+Apopka, Florida 32703
+USA
+
+lumaalberto1977@icloud.com
+
+321-225-1388
   
   
